@@ -1,3 +1,9 @@
+**Bernadette J. Connors, PhD**
+
+https://www.linkedin.com/in/bernadette-connors-01b98564
+
+
+
 **RESEARCH**
 
 My laboratory focuses primarily on understanding the microbial and viral ecosystems in numerous waterways in the Hudson Valley, focusing on identifying how human-
