@@ -1,7 +1,6 @@
 **RESEARCH**
 
 My laboratory focuses primarily on understanding the microbial and viral ecosystems in numerous waterways in the Hudson Valley, focusing on identifying how human-
-
 related activities impact the dynamics of the aquatic microbiome. 
 
 **EDUCATIONAL BACKGROUND**
