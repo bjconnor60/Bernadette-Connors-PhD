@@ -15,8 +15,9 @@ Syntax highlighted code block
 ## Header 2
 ### Header 3
 
-- Bulleted
-- List
+- Dominican College of Blauvelt
+- Science Department
+- Biology
 
 1. Numbered
 2. List
