@@ -5,15 +5,14 @@ related activities impact the dynamics of the aquatic microbiome.
 
 **EDUCATIONAL BACKGROUND**
 
+College of Environmental Science and Forestry, State University of New York 
+Environmental Forest Biology BSc (1990-1992)
+
 College of Environmental Science and Forestry, State University of New York
+Environmental Forest Biology Ph.D (1998-2002)
 
-Environmental Forest Biology     B.Sc.          1990-1992
-
-College of Environmental Science and Forestry, State University of New York
-
-Environmental Forest Biology     Ph.D.          1998-2002
-
-Gettysburg College			   Cell Biology and Genetics           Post-doc     2002-2005
+Gettysburg College			   
+Cell Biology and Genetics Post-doc (2002-2005)
 
 **ACADEMIC WORK EXPERIENCE**
 
