@@ -64,6 +64,7 @@ Tri Beta National  Honor Society  (2010-present)
 Sigma Xi Honor Society (2018-present)
 
 **Presentations** (Refereed)
+
 "An Inquiry Based Learning Experience Using the Model Organism Saccharomyces cerevisiae", National Association of Biology Teachers Annual Conference, Atlanta, GA (Fall 2013) (poster)
 
 "Undergraduate Research Experience in the Classroom as a Means of Retaining Students in a Biology Program", Biennial CUR Conference, Washington, DC (June 2014)  (Workshop session, co-presented with Annmarie Dellipizzi)
@@ -77,6 +78,7 @@ Sigma Xi Honor Society (2018-present)
 “Collective Impact Practices in STEM Research and Teaching”, 2019, Gordon Research Conference Undergraduate Biology Education Research (poster; Bates College, ME)
 
 **Presentations** (Invited)
+
 “Collective Impact Practices in STEM Research and Teaching at a PUI”, 2017, Clemson University
 
 “The Future of STEM Research and Teaching at Primarily Undergraduate Institutions”, 2019 University of Massachusetts Amherst
