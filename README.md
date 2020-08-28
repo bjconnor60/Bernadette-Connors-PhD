@@ -1,3 +1,3 @@
-Dominican College of Blauvelt
-Science Department
-Associate Professor of Biology
+-Dominican College of Blauvelt
+-Science Department
+-Associate Professor of Biology
